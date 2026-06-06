@@ -219,7 +219,7 @@ I will add my official Stanford Code in Place 2026 credential and certificate he
 
 ### LinkedIn
 
-https://www.linkedin.com/in/rubab-shahzadi-195a4024b
+https://www.linkedin.com/in/rubab-shahzadi-dev/
 
 ### GitHub
 
